@@ -1,6 +1,6 @@
 # 🌟 Exclusive Update: Pubg Mobile UC Free 2026 2026
 
-> **Status:** ✅ VERIFIED | **Update:** 2026-03-29 19:26:49 | **ID:** A9FZ3XXK
+> **Status:** ✅ VERIFIED | **Update:** 2026-03-29 19:59:22 | **ID:** V7YORFC6
 
 The official link for Pubg Mobile UC Free 2026 has been updated and verified today. Access is limited, grab it now!
 
